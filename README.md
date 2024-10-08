@@ -1,6 +1,6 @@
 - haii im xander but I also go by moxie.
 
-- I use any pronouna preferably he/they 
+- I use any pronouns preferably he/they 
 
 - (Suspecting osdd-1b system but ofc we are tapping in to every option possible)
 
