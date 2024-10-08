@@ -1,6 +1,8 @@
 - haii im xander but I also go by moxie.
 
-- I use any pronouns preferably he/they 
+- I use any pronouns preferably he/they
+
+-  I am an IRL of a few characters, If you don't feel comfortable with that then don't interact with me, please.
 
 - (Suspecting osdd-1b system but ofc we are tapping in to every option possible)
 
