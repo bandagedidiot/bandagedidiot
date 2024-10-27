@@ -1,4 +1,4 @@
-- haii im xander but I also go by moxie.
+- haii im xander but I also go by moxie. (I am 15, turning 16 yrs old)
 
 - I use any pronouns (he/they/she)
 
